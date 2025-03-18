@@ -1,7 +1,7 @@
 <div align="center"
  
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
-
+i sit in silence a lot unless im with friends
 ![me](https://i.postimg.cc/x8DZ3Fvs/IMG-3122.jpg)
 
 
