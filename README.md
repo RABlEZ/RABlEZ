@@ -1,7 +1,7 @@
 <div align="center"
  
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
-woah
+i reside under or near the tree in the bsd area on 18+ with friends 
 ![me](https://i.postimg.cc/x8DZ3Fvs/IMG-3122.jpg)
 
 
