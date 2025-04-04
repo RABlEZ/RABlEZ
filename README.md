@@ -1,7 +1,7 @@
 <div align="center"
  
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
-i reside under or near the tree in the bsd area on 18+ with friends. if i'm on safe im usually with my younger sibling
+i reside under or near the tree in the bsd area on 18+ with friends. if i'm on safe im usually with my younger sibling or friends
 ![me](https://i.postimg.cc/x8DZ3Fvs/IMG-3122.jpg)
 
 
