@@ -2,8 +2,7 @@
  
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
 HELLO HELLO! IF I AM OFFTAB I AM ON ANIMALJAM DEN DECORATING OR COLLECTING DEN ITEMS!!!! :3 
-![me](https://i.postimg.cc/x8DZ3Fvs/IMG-3122.jpg)
-
+!also i really dislike people who are constantly negative, SORRY
 
 
 
