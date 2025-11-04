@@ -4,4 +4,4 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
 >DNC MY SKINS<
 
- if my rentry is still hard to read PLS LMK
+extremely big fan of jjba and twst(i find comfort in both media and been a fan of both for six and and four years ^_^)
