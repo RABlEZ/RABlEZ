@@ -7,4 +7,4 @@
 <p align="center">
   <img src="https://i.postimg.cc/WpryvVR0/Untitled15-20251109094705.png" width="600" alt="Banner">
 </p>
-Leona, Azul,& idia kinnie!!
+Cater, Azul,& idia kinnie!!
