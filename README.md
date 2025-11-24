@@ -10,4 +10,5 @@
 BIG JJBA, TWST,& GACHIAKUTA FAN
 
 
-[Moody Hunters (https://moodyhunters.straw.page)
+[Moody Hunters](https://moodyhunters.straw.page)
+
