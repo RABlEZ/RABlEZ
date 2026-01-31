@@ -1,4 +1,11 @@
-## Hi there 👋
+<div align="center"
+ 
+
+![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
+ 🌎safe server near the blacksmith & jjba area
+![Image](https://files.catbox.moe/huvkhp.png)
+
+
 
 <!--
 **RABlEZ/RABlEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
