@@ -3,7 +3,7 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
  🌎safe server near the blacksmith & jjba area
-![Image]([https://files.catbox.moe/huvkhp.png](https://files.catbox.moe/eiaejn.jpeg))
+![Image](https://files.catbox.moe/eiaejn.jpeg)
 twst eng friend id^ (i need friends pls💔)
 
 
