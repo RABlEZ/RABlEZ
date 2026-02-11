@@ -2,12 +2,14 @@
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
- 🌎safe server near the blacksmith & jjba area
+ ## 🌎 safe server near the blacksmith & jjba area
+
 Some text
 
 ![image](https://files.catbox.moe/2hfqga.png)
 
 3 of my favs^
+
 
 
 
