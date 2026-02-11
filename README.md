@@ -1,17 +1,16 @@
-<div align="center"
- 
+<div align="center">
 
-![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
- ## 🌎 safe server near the blacksmith & jjba area
+  <img src="https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square" alt="Profile Views">
 
-Some text
+  <h2>🌎 safe server near the blacksmith & jjba area</h2>
 
-![image](https://files.catbox.moe/2hfqga.png)
+  <p>Some text</p>
 
-3 of my favs^
+  <img src="https://files.catbox.moe/2hfqga.png" alt="image">
 
+  <p>3 of my favs^</p>
 
-
+</div>
 
 <!--
 **RABlEZ/RABlEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
