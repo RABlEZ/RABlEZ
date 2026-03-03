@@ -2,7 +2,7 @@
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
- 🌎safe server near the blacksmith & jjba area
+ 🌎safe server near the blacksmith,jjba area,and sometimes the hoyo area unless with friends
 ![Image](https://files.catbox.moe/owqm8x.png)
 
 
