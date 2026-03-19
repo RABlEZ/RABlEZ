@@ -2,7 +2,7 @@
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
- 🌎safe server near the jjba area,soemtimes the hoyo area,the umamusume area,and the crk area
+ 🌎Alone like 80% percent of the time mostly offtab in these areas unless with friends: the jojo area,& the crk/umamusume area
 
 
 
