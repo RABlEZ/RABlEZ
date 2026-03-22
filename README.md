@@ -1,6 +1,6 @@
 <div align="center"
  
- ive been a fan of jojos for about almost 7 years now, im really attached to it and its my comfort series 
+"Only the truth of this world will remain in the end. Righteous actions born of truth will never crumble"
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
   ![Image](https://files.catbox.moe/vsck5m.jpeg)
