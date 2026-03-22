@@ -2,8 +2,9 @@
  
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
- 🌎Alone like 80% percent of the time mostly offtab in these areas unless with friends: the jojo area,& the crk/umamusume area
-
+ 
+ 
+![Image]([https://files.catbox.moe/vsck5m.jpeg)
 ive been a fan of jojos for about almost 7 years now, im really passionate about it and its my comfort series 
 
 <!--
