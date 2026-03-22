@@ -4,7 +4,7 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
  🌎Alone like 80% percent of the time mostly offtab in these areas unless with friends: the jojo area,& the crk/umamusume area
 
-
+ive been a fan of jojos for about almost 7 years now, im really passionate about it and its my comfort series 
 
 <!--
 **RABlEZ/RABlEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
