@@ -1,11 +1,11 @@
 <div align="center"
  
+ ive been a fan of jojos for about almost 7 years now, im really attached to it and its my comfort series 
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
  
- 
-![Image]([https://files.catbox.moe/vsck5m.jpeg)
-ive been a fan of jojos for about almost 7 years now, im really passionate about it and its my comfort series 
+ ![Image](https://files.catbox.moe/vsck5m.jpeg)
+
 
 <!--
 **RABlEZ/RABlEZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
