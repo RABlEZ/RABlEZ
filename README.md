@@ -4,6 +4,6 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
   ![Image](https://files.catbox.moe/vsck5m.jpeg)
-[ ᯓ★ˎˊ˗](https://loveddesires.atabook.org)
+[ ᯓ★ˎˊ˗]
  
  [𐔌՞ ܸ.ˬ.ܸ՞𐦯](https://rentry.co/frighteningmonsterz)
