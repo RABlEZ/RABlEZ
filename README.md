@@ -1,6 +1,6 @@
 <div align="center"
  
-byi: i am an adult so i prefer to not roleplay/act out ships with those younger than i am
+
  
  lost the login to @deaththirteen , i am forever pissed and upset </3
  
