@@ -2,7 +2,7 @@
  
 
  
- lost the login to @deaththirteen , i am forever pissed and upset </3
+as the weather gets warmer i stop being chronically online
  
 
 obsessed with the color green and jolyne cujoh
