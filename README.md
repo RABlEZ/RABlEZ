@@ -12,7 +12,7 @@ obsessed with the color green and jolyne cujoh
 
 
  jjba has been my favorite series for almost 7 years now, it brings me joy & comfort ok?
-
+& twst has been my favorite game since 2022
 
 
  
