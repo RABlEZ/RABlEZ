@@ -1,20 +1,17 @@
 <div align="center"
  
+due to being 20 years old i'd prefer if shippers would not interact
 
  
 
  
-
-obsessed with the color green and jolyne cujoh
 
 ![Profile Views](https://komarev.com/ghpvc/?username=RAB-IES&style=flat-square)
   ![Image](https://files.catbox.moe/wl9shy.jpeg)
+- stone ocean connisseur & lover of the color green
+- big jolyne defender
+- jojo fan for 7 years
+- twst fan since eng release
 
-
- jjba has been my favorite series for almost 7 years now, it brings me joy & comfort ok?
-& twst has been my favorite game since 2022
-
-
+- ALWAYS online playtime farming/multitasking/skin making/enjoying the silence
  
-HI THIS IS NOT ME IM NOT A FUCKING PROSHIPPER
-![Image](https://files.catbox.moe/or38hs.jpeg)
