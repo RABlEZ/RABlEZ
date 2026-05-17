@@ -15,3 +15,4 @@ due to being 20 years old i'd prefer if shippers would not interact
 
 - ALWAYS online playtime farming/multitasking/skin making/enjoying the silence
  
+- i do own many alt accs and half of them i forgot the login to (deaththirteen) and all my accs mention me in my bio 
